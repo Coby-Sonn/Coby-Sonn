@@ -12,4 +12,4 @@ I’m a tech enthusiast transitioning from a few years long career in Account Ma
 
 🏀 Fun Fact: I'm a basketball fan—it’s my favorite sport! Whether playing or watching, I’m always up for some hoops.
 
-Feel free to connect or reach out for collaboration opportunities. Let’s build something amazing together! ✨
+Feel free to connect or reach out for collaboration opportunities. Let’s build something cool together! 
